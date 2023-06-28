@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm Jaepil 👋
 
 <!--
 **tdj06170/tdj06170** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
